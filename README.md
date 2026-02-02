@@ -1,2 +1,12 @@
 # repic
+
 Moj repozitorij
+
+
+
+
+
+
+
+LALLALALALA
+
